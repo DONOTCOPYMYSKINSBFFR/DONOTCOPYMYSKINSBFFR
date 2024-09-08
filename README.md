@@ -6,5 +6,3 @@
 ![image](https://github.com/user-attachments/assets/bf6cf4f0-7fc0-415e-884f-d9bf857731f2)
 [" wanna bet I'll can die before you make me happy ?"](https://akaioslinks.straw.page)![image](https://github.com/user-attachments/assets/5c4f6d8a-e736-43ff-bf55-178b07b93557)
 
-
-![image](https://github.com/user-attachments/assets/a5d145ca-e634-4099-9708-46e4e38ef311)
