@@ -1,7 +1,8 @@
-- ![image](https://github.com/user-attachments/assets/43486a1c-f80a-4e48-a353-c8a53473864a)![image](https://github.com/user-attachments/assets/db03cd68-9481-40ab-bef2-534555005cc5)
+![image](https://github.com/user-attachments/assets/997c5615-5999-430a-88f6-9950227b4116)
+
 
 # click down below before INT 
 [" wanna bet I'll can die before you make me happy ?"](https://akaioslinks.straw.page)
 
+![image](https://github.com/user-attachments/assets/a5d145ca-e634-4099-9708-46e4e38ef311)![image](https://github.com/user-attachments/assets/9f6584e2-d1a4-44f2-b0ac-931950b3e7e5)
 
-- ![image](https://github.com/user-attachments/assets/b4432b59-fd50-4f80-a24a-1aff1cf1ba3f)![image](https://github.com/user-attachments/assets/6c5eee7b-31b0-4a0d-ae88-66b705860485)
