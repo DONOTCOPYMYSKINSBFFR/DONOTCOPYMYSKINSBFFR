@@ -8,7 +8,7 @@
 
 
 
-[" READ THIS FIRST" ](https://warningforyou.straw.page)  [" About me!^W^ "](https://akaioslinks.straw.page)[ " Sign here stranger " ](https://yoijku.atabook.org)
+[" READ THIS FIRST" ](https://warningforyou.straw.page) / [" About me!^W^ "](https://akaioslinks.straw.page) / [ " Sign here stranger " ](https://yoijku.atabook.org)
 
 ![image](https://github.com/user-attachments/assets/729a4e50-e645-4f00-a7e4-f6a6dd70d0f6)
 ![image](https://github.com/user-attachments/assets/8f09f9b9-0142-4557-ad2d-dd3c7271bc24)
